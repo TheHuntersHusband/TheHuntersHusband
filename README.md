@@ -25,7 +25,7 @@ I don't have a specific spot where I sit, my names are always [ Name/ #number - 
 
 ─── ⋆⋅☆⋅⋆ ──
 
-Exactly what you run from you always end up chasing /lyr ✦
+Fall. nowhere to go but down now so Fall! /lyr ✦
 
 ─── ⋆⋅☆⋅⋆ ──
 
