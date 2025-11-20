@@ -22,13 +22,18 @@ Diagnosed with Autism ✦
 ── ⋆⋅☆⋅⋆ ───
 
 I don't have a specific spot where I sit, my names are always [ Name/ #number - [emoji] source or AFK/offtab ✦
-              [if my name isnt the one above, then its either a shitpost skin, or i just picked another name idk why]
+             
+[if my name isnt the one above, then its either a shitpost skin, or i just picked another name idk why]
+              
+─── ⋆⋅☆⋅⋆ ──
+
+Current skins i use: my hunter skins, [maskless, yume colours, with mask], OR, a yumeshipper flag skin! ✦
+
 ─── ⋆⋅☆⋅⋆ ──
 
 Fall. nowhere to go but down now so Fall! /lyr ✦
 
 ─── ⋆⋅☆⋅⋆ ──
-
 DNI: Weirdos, Samuel kinnies, Guppy Regretevator likers, racist, ableist, homophobes, etc. pro zoophile/pedos, etc. ✦
 
 ─── ⋆⋅☆⋅⋆ ──
