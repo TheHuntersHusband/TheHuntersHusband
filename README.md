@@ -51,6 +51,8 @@ Special interests: Seals, Tyler the creator, Ponytown, Drawing, little nightmare
 
 feel free to: boop, kiss, c+H if asked first!! or if its in my name already!! ^_^< i dont mind being sat with if im already with somebody!! ✦
 
+ALSO. please DONT "eat" my skins! eg, using the eat animation and standing behind me! i dont like it and it makes me uncomfortable! ^_^ ✦
+
 im mainly afk/offtab, so if you want to ask something important, please ask if im activly online!! ✦
 
 i sleep on ponytown overnight too! so if i have the [sleeping] effect, then im asleep! so your whispers wont be answered so sorry!!! ✦
