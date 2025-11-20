@@ -5,7 +5,7 @@ beggars dni thanks!! ✦
 
 ── ⋆⋅☆⋅⋆ ───
 
-ᴺᴼᵂ ᴾᴸᴬᵞᴵᴺᴳ: Rusty (Feat. Domo Genesis & Earl Sweatshirt) ✦
+ᴺᴼᵂ ᴾᴸᴬᵞᴵᴺᴳ: Afterburner. [E]. Qbomb ✦
 
 Samuel / Sam / Sammy
 
