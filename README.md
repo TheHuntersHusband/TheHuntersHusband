@@ -39,7 +39,7 @@ DNI: Weirdos, Samuel kinnies, Guppy Regretevator likers, racist, ableist, homoph
 
 ─── ⋆⋅☆⋅⋆ ──
 
-Special interests: Seals, Tyler the creator, Ponytown, Drawing, little nightmares series, The living tombstone, Lemon Demon, Objectified, Ace attorney, Noisuf-x, dbh, More ^_^ ✦
+Special interests: Lucifer [the show] , Seals, Tyler the creator, Ponytown, Drawing, little nightmares series, The living tombstone, Lemon Demon, Objectified, Ace attorney, Noisuf-x, dbh, More ^_^ ✦
 
 ─── ⋆⋅☆⋅⋆ ──
 
