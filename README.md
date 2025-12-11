@@ -57,7 +57,7 @@ im mainly afk/offtab, so if you want to ask something important, please ask if i
 
 i sleep on ponytown overnight too! so if i have the [sleeping] effect, then im asleep! so your whispers wont be answered so sorry!!! ✦
 
-dni if under 13, over 30!! ✦
+dni if under 13 !! ✦
 
 and incase your wondering.. what is yumeshipping??
 
