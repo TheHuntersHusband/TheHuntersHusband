@@ -11,7 +11,7 @@ Samuel / Sam / Sammy
 
 Minor ✦
 
-No. 1 Samuel Lover/Kinnie ✦
+No. 1 Samuel Lover/Kinnie [ttc/wolf] ✦
 
 No.1 Guppy Lover/Kinnie ✦
 
