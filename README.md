@@ -27,7 +27,7 @@ I don't have a specific spot where I sit, my names are always [ Name/ #number - 
               
 ─── ⋆⋅☆⋅⋆ ──
 
-Current skins i use: my hunter skins [somethimes without mask! or w/ ushanka hat! ^_^] , ! ✦
+Current skins i use: my hunter skins [somethimes without sack [his mask] ! or w/ ushanka hat! ^_^] , ! ✦
 
 ─── ⋆⋅☆⋅⋆ ──
 
