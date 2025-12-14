@@ -12,7 +12,7 @@
 
 ✦ No.1 guppy kinnie!   ˊˎ-
 
-✦ No.1 hunter kisser [ln2]  ˊˎ-
+✦ No.1 hunter kisser [ln2]  ˊˎ-  [nonsharing !!^_^ .]
 
 
 ╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯
