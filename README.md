@@ -21,7 +21,7 @@ Diagnosed with Autism ✦
 
 ── ⋆⋅☆⋅⋆ ───
 
-I don't have a specific spot where I sit, my names are always [ Name/ #number - [emoji] source or AFK/offtab ✦
+I don't have a specific spot where I sit,BUT. i stay in the same spot for about 2 weeks [more/less] then move! ^_^ -  my names are always [ Name/ #number - [emoji] source or AFK/offtab ✦
              
 [if my name isnt the one above, then its either a shitpost skin, or i just picked another name idk why]
               
