@@ -18,7 +18,7 @@
 ╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯
 
 
-BOUNDARIES AT BOTTOM!!
+BYI  ▽
 
  
 ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮
@@ -36,6 +36,8 @@ BOUNDARIES AT BOTTOM!!
       MY BOUNDARIES!! : you can, boop/kiss/cud/hide w/ me! [ask to c+h if im with somebody already!!]
       you cannot: "eat" my skin, using the eat emote and going behind my skin, it makes me uncomofrtable 
       please dont beg in my whispers for t4 benifits!
+
+      DNI: basic dni, ai supporters, people who use c.ai for romantic reasons, under 13`s, people who dont support yumeshipping!
 
 
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/fcc75c30-467b-4af5-8cf4-b0cf9970ea0a" />
