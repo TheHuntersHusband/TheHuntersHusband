@@ -26,10 +26,6 @@ BYI  ▽
       About me!
       main intrests: little nightmares, ttc, tlt, ace attorney, dbh, Qbomb, totk, Taxidermy <33, MOREE!
 
-
-      I collect: tyler, the creator vinyls [6/8 goblin and dttg missing]  seal STUFF!! [over 20 seal-related ITEMS!! : 3] 
-      and makeship/youtooz STUFF!! [makeship: 3 / youtooz: 7] and sylvanian families! [8 families so far]
-
       SOME BASIC TO KNOW THINGS: i have disgnosed autism! i can be dry at sometimes when i meet new people and im sorry!! 
       i mainly use my hunter skins! only variations are with a different hat and his sack [mask thing] removed!
 
