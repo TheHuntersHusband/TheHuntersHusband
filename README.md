@@ -36,7 +36,7 @@ BYI  ▽
       you cannot: "eat" my skin, using the eat emote and going behind my skin, it makes me uncomofrtable 
       please dont beg in my whispers for t4 benifits!
 
-      DNI: basic dni, proshippers [ew], ai supporters, people who use c.ai, under 13`s, people who dont support yumeshipping!
+      DNI: basic dni, proshippers, gen ai supporters, people who use c.ai, under 13`s, people who dont support yumeshipping!
 
 
 <img width="3840" height="2160" alt="image" src="https://github.com/user-attachments/assets/da1c8da7-f2b4-407b-a309-65a5eb1d1cd6" />
