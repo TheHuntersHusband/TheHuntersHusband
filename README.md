@@ -1,4 +1,5 @@
-<img width="3840" height="2160" alt="image" src="https://github.com/user-attachments/assets/dfbf8e76-2803-49a3-aa20-40080fda2dee" />
+<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/d16f0c5b-d5e5-4113-ae2b-25678e545f34" />
+ 
  
  ✦ Welcome!
 
@@ -38,5 +39,6 @@ BYI  ▽
       DNI: basic dni, proshippers [ew], ai supporters, people who use c.ai, under 13`s, people who dont support yumeshipping!
 
 
-<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/fcc75c30-467b-4af5-8cf4-b0cf9970ea0a" />
+<img width="3840" height="2160" alt="image" src="https://github.com/user-attachments/assets/da1c8da7-f2b4-407b-a309-65a5eb1d1cd6" />
+
 
