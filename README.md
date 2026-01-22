@@ -1,7 +1,8 @@
 <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/d16f0c5b-d5e5-4113-ae2b-25678e545f34" />
  
  
- ✦ Welcome!
+ ✦ Welcome!   ![Badge](https://hitscounter.dev/api/hit?url=https%3A%2F%2Fgithub.com%2FTheHuntersHusband&label=Taxidermies&icon=at&color=%23000&message=&style=flat&tz=GB)
+
 
  THIS IS A WIp!!! WILL CHANGE IN SOME TIME
 
