@@ -1,9 +1,7 @@
 <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/d16f0c5b-d5e5-4113-ae2b-25678e545f34" />
  
  
- ✦ Welcome!   <img src="https://hitcount.dev/p/Thehuntershusband/I%20want%20to%20makeout%20with%20the%20hunter%20right%20now.svg?label=Taxidermies&labelColor=0b2420e0&countColor=000000" alt="Hit Counter">
- 
-
+ ✦ Welcome!   
 
  THIS IS A WIp!!! WILL CHANGE IN SOME TIME
 
