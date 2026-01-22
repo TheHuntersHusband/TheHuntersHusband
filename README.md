@@ -30,7 +30,7 @@ BYI  ▽
       main intrests: little nightmares, ttc, tlt, ace attorney, dbh, Qbomb, totk, Taxidermy <33, MOREE!
 
       SOME BASIC TO KNOW THINGS: i have disgnosed autism! i can be dry at sometimes when i meet new people and im sorry!! 
-      i mainly use my hunter or vigilante skins! as of now ^_^
+      i mainly use my hunter skin! as of now ^_^
 
       MY BOUNDARIES!! : you can, boop/kiss/cud/hide w/ me! [ask to c+h if im with somebody already!!]
       you cannot: "eat" my skin, using the eat emote and going behind my skin, it makes me uncomofrtable 
