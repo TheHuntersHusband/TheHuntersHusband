@@ -1,5 +1,6 @@
 
- <img width="887" height="1042" alt="Screenshot 2026-01-24 005055" src="https://github.com/user-attachments/assets/7a628294-e0dc-4869-8d32-61faeb54f2dd" />
+
+<img width="826" height="890" alt="Screenshot 2026-01-24 005133" src="https://github.com/user-attachments/assets/3eaad1d0-5972-4176-8176-f59d1523178a" />
 
 Art by @j3llypanda on tt / jellipanda on dc! <3
  
