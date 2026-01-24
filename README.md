@@ -1,5 +1,6 @@
-<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/d16f0c5b-d5e5-4113-ae2b-25678e545f34" />
- 
+
+ <img width="1668" height="2224" alt="Habysterrrr" src="https://github.com/user-attachments/assets/f55e86b2-314d-4d84-9c5e-3aecf7c3cb5c" />
+Art by @j3llypanda on tt / jellipanda on dc! <3
  
  ✦ Welcome!   
 
