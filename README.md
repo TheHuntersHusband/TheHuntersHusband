@@ -1,8 +1,8 @@
 
+![Thinn man ily](https://github.com/user-attachments/assets/ab08917c-7056-4e1a-9b4a-4dec2ff535b1)
 
-<img width="826" height="890" alt="Screenshot 2026-01-24 005133" src="https://github.com/user-attachments/assets/3eaad1d0-5972-4176-8176-f59d1523178a" />
 
-Art by @j3llypanda on tt / jellipanda on dc! <3
+Art by @sillysourdough on discord !!! <3
  
  ✦ Welcome!   
 
