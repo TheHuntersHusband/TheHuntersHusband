@@ -16,7 +16,7 @@ Art by @sillysourdough on discord !!! <3
 
 ✦ No.1 guppy kinnie!   ˊˎ-
 
-✦ No.1 hunter kisser [ln2]  ˊˎ-  [nonsharing !!^_^ .]
+✦ The hunter kisser [ln2]  ˊˎ-  [nonsharing !!^_^ .]
 
 ✦ Possible vigilante fictkin [peacemaker] ˊˎ-
 
