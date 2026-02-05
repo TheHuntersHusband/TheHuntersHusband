@@ -1,8 +1,8 @@
 
-![Thinn man ily](https://github.com/user-attachments/assets/ab08917c-7056-4e1a-9b4a-4dec2ff535b1)
+![loving_ych_gupppyy_ver_2](https://github.com/user-attachments/assets/9e1f9c44-938d-43eb-80a1-db71f003e303)
 
 
-Art by @sillysourdough on discord !!! <3
+Art by @piercikun on Vgen! !!! <3
  
  ✦ Welcome!   
 
