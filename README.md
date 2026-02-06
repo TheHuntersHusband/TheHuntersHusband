@@ -1,8 +1,8 @@
 
-![loving_ych_gupppyy_ver_2](https://github.com/user-attachments/assets/9e1f9c44-938d-43eb-80a1-db71f003e303)
+<img width="2160" height="1620" alt="i drew this ME" src="https://github.com/user-attachments/assets/d263a1cc-cfb2-40a8-a324-529d23bfc0ff" />
 
 
-Art by @piercikun on Vgen! !!! <3
+Art by ME! i drew this! !!! (yes he real he real yes!) <3
  
  ✦ Welcome!   
 
