@@ -1,5 +1,4 @@
-
-![loving_ych_gupppyy_ver_2](https://github.com/user-attachments/assets/cd3d2167-a263-43e1-8c3a-5ae8354b9543)
+MY REPOSITORIES OR WTV IS BROKEN RN!!! i tried uploading too many images in the same one and it crashed!! images/gifs wont load </3 so my gifs will come back soon
 
 Art by @piercikun on Vgen! <3
  
@@ -41,5 +40,4 @@ BYI  ▽
       DNI: basic dni, proshippers, gen ai supporters, fat shamers, people who use c.ai, under 13`s, people who dont support yumeshipping!
 
 
-
-![Uploading 426r68z7zrs71.webp…]()
+=
