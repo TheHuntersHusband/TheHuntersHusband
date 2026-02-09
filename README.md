@@ -1,4 +1,5 @@
- ![loving_ych_gupppyy_ver_2](https://github.com/user-attachments/assets/5a78df1d-2952-4c94-b39f-ca4b960c239d)
+
+![loving_ych_gupppyy_ver_2](https://github.com/user-attachments/assets/cd3d2167-a263-43e1-8c3a-5ae8354b9543)
 
 Art by @piercikun on Vgen! <3
  
@@ -40,4 +41,5 @@ BYI  ▽
       DNI: basic dni, proshippers, gen ai supporters, fat shamers, people who use c.ai, under 13`s, people who dont support yumeshipping!
 
 
-<img width="3840" height="2160" alt="image" src="https://github.com/user-attachments/assets/da1c8da7-f2b4-407b-a309-65a5eb1d1cd6" />
+
+![Uploading 426r68z7zrs71.webp…]()
