@@ -112,3 +112,7 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
 
 ![divider-cute](https://github.com/user-attachments/assets/d83869af-5a5a-4543-8cf9-60d5b2a9821c)
 
+
+
+![slimecicle-ranboo](https://github.com/user-attachments/assets/79e75e24-6caa-4876-9659-158065ce43fb)
+
