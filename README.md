@@ -69,11 +69,17 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
 
 <img width="99" height="56" alt="e77" src="https://github.com/user-attachments/assets/40cb7d70-be1e-4722-85ec-f7228b3e41c9" />![e80](https://github.com/user-attachments/assets/9e7a6dea-38cd-47da-9e35-d4c12ffda596)
 
-<img width="99" height="56" alt="k13" src="https://github.com/user-attachments/assets/fcc67a43-5fee-409d-8c47-36cb704a8a60" />
-
-<img width="99" height="56" alt="k20" src="https://github.com/user-attachments/assets/6c4f7691-aff9-47eb-a8ea-34dce31bda53" />
+<img width="99" height="56" alt="k13" src="https://github.com/user-attachments/assets/fcc67a43-5fee-409d-8c47-36cb704a8a60" /><img width="99" height="57" alt="b51" src="https://github.com/user-attachments/assets/7721e770-b6eb-4907-979f-07252d1832bd" />
 
 
+<img width="99" height="56" alt="k20" src="https://github.com/user-attachments/assets/6c4f7691-aff9-47eb-a8ea-34dce31bda53" />![d2](https://github.com/user-attachments/assets/ae041509-46ea-4d35-b75d-46630fee222b)
+
+
+
+![e22](https://github.com/user-attachments/assets/eeca2491-5df5-4b7e-a67b-d9afa9bbda93)
+![c39](https://github.com/user-attachments/assets/c7f56068-fc6c-403a-9d87-5066547f6fb1)
+
+![e115](https://github.com/user-attachments/assets/b09abdad-e804-46d0-93d8-e849ea47ddfc)![e51](https://github.com/user-attachments/assets/6b00fde2-14ef-43b6-91f7-753aaf316382)
 
 
  $\color{darkgray}{\textbf{ ╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯}}$
