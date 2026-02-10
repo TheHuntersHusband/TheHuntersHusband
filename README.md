@@ -109,6 +109,24 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
 
 
 
+  <details>
+
+  <summary>$${\color{#7D1414}  Gifs! (vigilante) ▽ }$$</summary>
+
+![peacemaker-peacemaker-tv-series](https://github.com/user-attachments/assets/81fdc1bf-c807-4988-8e7b-948540deb35b)
+
+![sparklepandalana-adrian-chase](https://github.com/user-attachments/assets/4461c7ae-5027-4a47-83c6-8c9da0da8947)
+![peacemaker-peacemaker-season-2](https://github.com/user-attachments/assets/bad46079-5812-4fdf-beee-ab5f83b92f84)
+
+![vigilante-kissing-economos-adrian-kissing-john](https://github.com/user-attachments/assets/beb64436-a0a9-4625-813a-9e0cfc99e096)
+
+
+  </details>
+
+
+
+
+
 
 
 ![divider-cute](https://github.com/user-attachments/assets/d83869af-5a5a-4543-8cf9-60d5b2a9821c)
