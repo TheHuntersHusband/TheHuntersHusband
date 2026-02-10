@@ -21,8 +21,9 @@ Art by @piercikun on Vgen! <3
 
 ╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯
 
+  <details>
 
-BYI  ▽
+<summary>$${\color{#961818&} BYI / INFO ▽   }$$</summary>
 
  
 ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮
