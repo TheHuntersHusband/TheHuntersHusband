@@ -69,7 +69,7 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
 
   <details>
 
-   <summary>$${\color{#6C1111} Fun stuff! ▽   }$$</summary>
+   <summary>$${\color{#6C1111} Fun stuff! ▽  }$$</summary>
 
  $\color{darkgray}{\textbf{ ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
  
@@ -93,5 +93,16 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
   
   </details>
 
+![red-divider](https://github.com/user-attachments/assets/95adbe8b-3b52-42d8-81cb-7742739b5d2a)
+
+  
+ <details>
+
+  <summary>$${\color{#490C0C}  My husband <3 ▽ }$$</summary>
+
+ <img width="750" height="650" alt="hunter ref render" src="https://github.com/user-attachments/assets/4ccdee94-adeb-48d4-94ad-0c3e44be5dc1" />
+
+  <img width="373" height="779" alt="image" src="https://github.com/user-attachments/assets/8e3686cd-235b-482f-b073-5c9c55ee1512" />
 
   </details>
+
