@@ -1,6 +1,7 @@
-MY REPOSITORIES OR WTV IS BROKEN RN!!! i tried uploading too many images in the same one and it crashed!! images/gifs wont load </3 so my gifs will come back soon
 
-Art by @piercikun on Vgen! <3
+<img width="461" height="325" alt="mayor" src="https://github.com/user-attachments/assets/157ec207-b0e1-4018-bc24-7c18da24b61a" />
+
+  $\color{red}{\textbf{ art by @welcometoclowntowne on discord! }}$
  
   ## $\color{darkred}{\textbf{✦ Welcome!}}$    ![](https://komarev.com/ghpvc/?username=TheHuntersHusband&color=961818&label=Taxidermied+People)
 
