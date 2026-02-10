@@ -9,7 +9,7 @@ Art by @piercikun on Vgen! <3
 
   <details>
 
-<summary>$${\color{#A41A1A} KINS / YUME ▽   }$$</summary>
+   <summary>$${\color{#A41A1A} KINS / YUME ▽   }$$</summary>
 
  $\color{darkgray}{\textbf{ ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
  
@@ -43,12 +43,11 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
 
 
       About me!
-     main intrests: little nightmares, ttc, tlt, ace attorney, dbh, Qbomb, totk, Taxidermy <33, MOREE!
+     main intrests: little nightmares, ttc, tlt, ace attorney, dbh, Qbomb, Taxidermy <33,Bonus Disc, & more!
 
-     SOME BASIC TO KNOW THINGS: i have disgnosed autism! i can be dry at sometimes when i meet new people and im sorry!! 
-      i mainly use my hunter skin! as of now ^_^
+       i identify as transgender and gay! [mlm]
 
-     MY BOUNDARIES!! : you can, boop/kiss/cud/hide w/ me! [ask to c+h if im with somebody already!!]
+    boundaries : you can, boop/kiss/cud/hide w/ me! [ask to c+h if im with somebody already!!]
       you cannot: "eat" my skin, using the eat emote and going behind my skin, it makes me uncomofrtable 
       please dont beg in my whispers for t4 benifits!
 
