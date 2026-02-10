@@ -13,7 +13,7 @@
   $\color{darkred}{\textbf{-------------------------------------}}$
   
 
-
+![divider-cute](https://github.com/user-attachments/assets/d83869af-5a5a-4543-8cf9-60d5b2a9821c)
   <details>
 
    <summary>$${\color{#A41A1A} KINS / YUME ▽   }$$</summary>
@@ -105,4 +105,10 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
   <img width="373" height="779" alt="image" src="https://github.com/user-attachments/assets/8e3686cd-235b-482f-b073-5c9c55ee1512" />
 
   </details>
+
+![red-divider](https://github.com/user-attachments/assets/95adbe8b-3b52-42d8-81cb-7742739b5d2a)
+
+
+
+![divider-cute](https://github.com/user-attachments/assets/d83869af-5a5a-4543-8cf9-60d5b2a9821c)
 
