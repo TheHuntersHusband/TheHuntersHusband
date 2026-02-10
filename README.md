@@ -42,7 +42,6 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
 
 
 
-![red-divider](https://github.com/user-attachments/assets/95adbe8b-3b52-42d8-81cb-7742739b5d2a)
 
 
 
@@ -68,8 +67,6 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
     
   </details>
   
-![red-divider](https://github.com/user-attachments/assets/95adbe8b-3b52-42d8-81cb-7742739b5d2a)
-
 
   <details>
 
@@ -97,7 +94,6 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
   
   </details>
 
-![red-divider](https://github.com/user-attachments/assets/95adbe8b-3b52-42d8-81cb-7742739b5d2a)
 
   
  <details>
@@ -110,7 +106,7 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
 
   </details>
 
-![red-divider](https://github.com/user-attachments/assets/95adbe8b-3b52-42d8-81cb-7742739b5d2a)
+
 
 
 
