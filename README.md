@@ -4,26 +4,40 @@ Art by @piercikun on Vgen! <3
  
   ## $\color{darkred}{\textbf{✦ Welcome!}}$    ![](https://komarev.com/ghpvc/?username=TheHuntersHusband&color=961818&label=Taxidermied+People)
 
- THIS IS A WIp!!! WILL CHANGE IN SOME TIME
+ THIS IS A WIp!!! WILL CHANGE IN SOME TIME          
 
-
-╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮
- 
-
-✦ No.1 samuel kinnie [ttc/wolf  ˊˎ-
-
-✦ No.1 guppy kinnie!   ˊˎ-
-
-✦ The hunter kisser [ln2]  ˊˎ-  [nonsharing !!^_^ .]
-
-✦ Possible vigilante fictkin [peacemaker] ˊˎ-
-
-
-╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯
 
   <details>
 
-<summary>$${\color{#961818&} BYI / INFO ▽   }$$</summary>
+<summary>$${\color{#A41A1A} KINS / YUME ▽   }$$</summary>
+
+ $\color{darkgray}{\textbf{ ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
+ 
+
+ $\color{grey}{\textbf{ ✦ No.1 samuel kinnie [ttc/wolf  ˊˎ-}}$
+
+$\color{grey}{\textbf{ ✦ No.1 guppy kinnie!   ˊˎ-}}$
+
+$\color{grey}{\textbf{ ✦ The hunter kisser [ln2]  ˊˎ-  [nonsharing ] }}$
+
+
+$\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
+
+
+
+ $\color{darkgray}{\textbf{ ╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯}}$
+  
+  </details>
+
+
+![galaxy-divider-divider](https://github.com/user-attachments/assets/53f897fe-a7d1-4d3f-8212-c7b83200dfbc)
+
+
+
+
+  <details>
+
+<summary>$${\color{#8F1717} BYI / INFO ▽   }$$</summary>
 
  
 ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮
@@ -39,6 +53,8 @@ Art by @piercikun on Vgen! <3
       please dont beg in my whispers for t4 benifits!
 
       DNI: basic dni, proshippers, gen ai supporters, fat shamers, people who use c.ai, under 13`s, people who dont support yumeshipping!
+
+<details>
 
 
 =
