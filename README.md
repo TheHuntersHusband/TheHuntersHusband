@@ -39,22 +39,20 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
 
 <summary>$${\color{#8F1717} BYI / INFO ▽   }$$</summary>
 
- 
-╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮
+  $\color{darkgray}{\textbf{╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
+
 
       About me!
-      main intrests: little nightmares, ttc, tlt, ace attorney, dbh, Qbomb, totk, Taxidermy <33, MOREE!
+     main intrests: little nightmares, ttc, tlt, ace attorney, dbh, Qbomb, totk, Taxidermy <33, MOREE!
 
-      SOME BASIC TO KNOW THINGS: i have disgnosed autism! i can be dry at sometimes when i meet new people and im sorry!! 
+     SOME BASIC TO KNOW THINGS: i have disgnosed autism! i can be dry at sometimes when i meet new people and im sorry!! 
       i mainly use my hunter skin! as of now ^_^
 
-      MY BOUNDARIES!! : you can, boop/kiss/cud/hide w/ me! [ask to c+h if im with somebody already!!]
+     MY BOUNDARIES!! : you can, boop/kiss/cud/hide w/ me! [ask to c+h if im with somebody already!!]
       you cannot: "eat" my skin, using the eat emote and going behind my skin, it makes me uncomofrtable 
       please dont beg in my whispers for t4 benifits!
 
-      DNI: basic dni, proshippers, gen ai supporters, fat shamers, people who use c.ai, under 13`s, people who dont support yumeshipping!
+    DNI: basic dni, proshippers, gen ai supporters, fat shamers, people who use c.ai, under 13`s, people who dont support yumeshipping!
+}}$
 
-<details>
 
-
-=
