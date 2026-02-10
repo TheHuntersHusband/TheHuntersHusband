@@ -53,6 +53,9 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
       please dont beg in my whispers for t4 benifits!
 
     DNI: basic dni, proshippers, gen ai supporters, fat shamers, people who use c.ai, under 13`s, people who dont support yumeshipping!
-}}$
+
+
+  
+![galaxy-divider-divider](https://github.com/user-attachments/assets/53f897fe-a7d1-4d3f-8212-c7b83200dfbc)
 
 
