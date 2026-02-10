@@ -52,16 +52,17 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
   $\color{darkgray}{\textbf{╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
 
 
-      About me!
-     main intrests: little nightmares, ttc, tlt, ace attorney, dbh, Qbomb, Taxidermy <33,Bonus Disc, & more!
+  $\color{darkgray}{\textbf{  About me!
+     main intrests: little nightmares, ttc, tlt, ace attorney, dbh, Qbomb, Taxidermy <33,Bonus Disc, and more!}}$
+ 
 
-       i identify as transgender and gay! [mlm]
+  $\color{darkgray}{\textbf{i identify as transgender and gay! [mlm]}}$ 
 
-    boundaries : you can, boop/kiss/cud/hide w/ me! [ask to c+h if im with somebody already!!]
+   $\color{darkgray}{\textbf{boundaries : you can, boop/kiss/cud/hide w/ me! [ask to c+h if im with somebody already!!]
       you cannot: "eat" my skin, using the eat emote and going behind my skin, it makes me uncomofrtable 
-      please dont beg in my whispers for t4 benifits!
+      please dont beg in my whispers for t4 benifits!}}$ 
 
-    DNI: basic dni, proshippers, gen ai supporters, fat shamers, people who use c.ai, under 13`s, people who dont support yumeshipping!
+  $\color{darkgray}{\textbf{DNI: basic dni, proshippers, gen ai supporters, fat shamers, people who use c.ai, under 13`s, people who dont support yumeshipping!}}$ 
 
  $\color{darkgray}{\textbf{ ╰── ⋅ ⋅ ──  ✩  ── ⋅ ⋅ ──╯}}$
     
