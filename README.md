@@ -30,8 +30,8 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
   </details>
 
 
-![galaxy-divider-divider](https://github.com/user-attachments/assets/53f897fe-a7d1-4d3f-8212-c7b83200dfbc)
 
+![red-divider](https://github.com/user-attachments/assets/95adbe8b-3b52-42d8-81cb-7742739b5d2a)
 
 
 
@@ -53,8 +53,32 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
 
     DNI: basic dni, proshippers, gen ai supporters, fat shamers, people who use c.ai, under 13`s, people who dont support yumeshipping!
 
+ $\color{darkgray}{\textbf{ ╰── ⋅ ⋅ ──  ✩  ── ⋅ ⋅ ──╯}}$
+    
   </details>
   
-![galaxy-divider-divider](https://github.com/user-attachments/assets/53f897fe-a7d1-4d3f-8212-c7b83200dfbc)
+![red-divider](https://github.com/user-attachments/assets/95adbe8b-3b52-42d8-81cb-7742739b5d2a)
 
 
+  <details>
+
+   <summary>$${\color{#6C1111} Fun stuff! ▽   }$$</summary>
+
+ $\color{darkgray}{\textbf{ ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
+ 
+
+<img width="99" height="56" alt="e77" src="https://github.com/user-attachments/assets/40cb7d70-be1e-4722-85ec-f7228b3e41c9" />![e80](https://github.com/user-attachments/assets/9e7a6dea-38cd-47da-9e35-d4c12ffda596)
+
+<img width="99" height="56" alt="k13" src="https://github.com/user-attachments/assets/fcc67a43-5fee-409d-8c47-36cb704a8a60" />
+
+<img width="99" height="56" alt="k20" src="https://github.com/user-attachments/assets/6c4f7691-aff9-47eb-a8ea-34dce31bda53" />
+
+
+
+
+ $\color{darkgray}{\textbf{ ╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯}}$
+  
+  </details>
+
+
+  </details>
