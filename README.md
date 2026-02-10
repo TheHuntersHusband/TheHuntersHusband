@@ -2,7 +2,7 @@ MY REPOSITORIES OR WTV IS BROKEN RN!!! i tried uploading too many images in the 
 
 Art by @piercikun on Vgen! <3
  
- ✦ Welcome!    ![](https://komarev.com/ghpvc/?username=TheHuntersHusband&color=903232&label=Taxidermied+People)
+  ## $\color{darkred}{\textbf{✦ Welcome!}}$    ![](https://komarev.com/ghpvc/?username=TheHuntersHusband&color=961818&label=Taxidermied+People)
 
  THIS IS A WIp!!! WILL CHANGE IN SOME TIME
 
