@@ -6,7 +6,6 @@
 ![vigilante-peacemaker-dc-1634408442594 (1)](https://github.com/user-attachments/assets/098fd3fe-bb81-495a-bd43-6eb561bbf238)
 
 
-  $\color{pink}{\textbf{ art by @welcometoclowntowne on discord! }}$
  
   ## $\color{darkred}{\textbf{✦ Welcome!}}$    ![](https://komarev.com/ghpvc/?username=TheHuntersHusband&color=961818&label=Taxidermied+People) 
 <img width="67" height="50" alt="86060593_QsM" src="https://github.com/user-attachments/assets/97259885-5175-4bc3-839a-e14c1ef6f807" />
