@@ -3,7 +3,8 @@
 
 
 
-<img width="461" height="325" alt="mayor" src="https://github.com/user-attachments/assets/157ec207-b0e1-4018-bc24-7c18da24b61a" />
+![vigilante-peacemaker-dc-1634408442594 (1)](https://github.com/user-attachments/assets/098fd3fe-bb81-495a-bd43-6eb561bbf238)
+
 
   $\color{pink}{\textbf{ art by @welcometoclowntowne on discord! }}$
  
