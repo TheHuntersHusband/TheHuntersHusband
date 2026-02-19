@@ -14,7 +14,7 @@
 
 
 
-
+[Straw](https://thehuntershusband.straw.page/)  /  [Ata](https://thehuntershusband.atabook.org/)   / [Prns](https://en.pronouns.page/@TheHuntersHusbnd)
  
 
   $\color{red}{\textbf{On PT 24/7  }}$
