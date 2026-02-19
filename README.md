@@ -83,7 +83,9 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
 
 <img width="99" height="56" alt="e77" src="https://github.com/user-attachments/assets/40cb7d70-be1e-4722-85ec-f7228b3e41c9" />![e80](https://github.com/user-attachments/assets/9e7a6dea-38cd-47da-9e35-d4c12ffda596)
 
-<img width="99" height="56" alt="k13" src="https://github.com/user-attachments/assets/fcc67a43-5fee-409d-8c47-36cb704a8a60" /><img width="99" height="57" alt="b51" src="https://github.com/user-attachments/assets/7721e770-b6eb-4907-979f-07252d1832bd" />
+![gaynerds](https://github.com/user-attachments/assets/03662005-bcc3-4c24-b35f-de296285213c)
+![e106](https://github.com/user-attachments/assets/8822933b-2b0c-409d-a5a9-ca337b2f4f35)
+
 
 
 <img width="99" height="56" alt="k20" src="https://github.com/user-attachments/assets/6c4f7691-aff9-47eb-a8ea-34dce31bda53" /> ![e31](https://github.com/user-attachments/assets/8fa6db0b-ea55-4a45-83fb-2a2ec483c7be)
