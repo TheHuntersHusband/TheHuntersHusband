@@ -7,7 +7,13 @@
 
   $\color{pink}{\textbf{ art by @welcometoclowntowne on discord! }}$
  
-  ## $\color{darkred}{\textbf{✦ Welcome!}}$    ![](https://komarev.com/ghpvc/?username=TheHuntersHusband&color=961818&label=Taxidermied+People)
+  ## $\color{darkred}{\textbf{✦ Welcome!}}$    ![](https://komarev.com/ghpvc/?username=TheHuntersHusband&color=961818&label=Taxidermied+People) 
+<img width="67" height="50" alt="86060593_QsM" src="https://github.com/user-attachments/assets/97259885-5175-4bc3-839a-e14c1ef6f807" />
+<img width="67" height="50" alt="86058719_Hnw" src="https://github.com/user-attachments/assets/70272391-2ba3-4f68-bc29-b72eae264f1c" /><img width="67" height="50" alt="86050949_7tT" src="https://github.com/user-attachments/assets/2575bbfa-9611-416c-8f69-4d312a9f226d" />
+
+
+
+
 
  THIS IS A WIp!!! WILL CHANGE IN SOME TIME    
 
@@ -127,6 +133,7 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
 
 
 ![divider-cute](https://github.com/user-attachments/assets/d83869af-5a5a-4543-8cf9-60d5b2a9821c)
+
 
 
 
