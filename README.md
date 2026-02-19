@@ -38,7 +38,7 @@ $\color{grey}{\textbf{ ✦ No.1 guppy kinnie!   ˊˎ-}}$
 $\color{grey}{\textbf{ ✦ The hunter kisser [ln2]  ˊˎ-  [nonsharing ] }}$
 
 
-$\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
+$\color{grey}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
 
 
 
