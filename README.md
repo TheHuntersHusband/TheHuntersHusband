@@ -44,7 +44,6 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
 
 
 
-
   <details>
 
 <summary>$${\color{#8F1717} BYI / INFO ▽   }$$</summary>
@@ -62,7 +61,7 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
       you cannot: "eat" my skin, using the eat emote and going behind my skin, it makes me uncomofrtable 
       please dont beg in my whispers for t4 benifits!}}$ 
 
-  $\color{darkgray}{\textbf{DNI: basic dni, proshippers, gen ai supporters, fat shamers, people who use c.ai, under 13`s, Moonflower/dandyxastro shippers, people who dont support yumeshipping!}}$ 
+  $\color{darkgray}{\textbf{DNI: basic dni, proshippers, gen ai supporters, fat shamers, people who use c.ai, under 13`s, Moonflower/dandyxastro shippers. }}$ 
 
  $\color{darkgray}{\textbf{ ╰── ⋅ ⋅ ──  ✩  ── ⋅ ⋅ ──╯}}$
     
@@ -122,8 +121,6 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
 
 
   </details>
-
-
 
 
 
