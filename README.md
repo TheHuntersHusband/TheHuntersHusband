@@ -130,6 +130,9 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
 
 ![vigilante-kissing-economos-adrian-kissing-john](https://github.com/user-attachments/assets/beb64436-a0a9-4625-813a-9e0cfc99e096)
 
+![adrian-chase-vigilante](https://github.com/user-attachments/assets/fc27d858-3a55-414d-ae53-0d8313072bce)![vigilante-peacemaker](https://github.com/user-attachments/assets/82b113ee-72a5-464b-a681-4eb2eb18c268)
+
+![peacemaker-vigilante (1)](https://github.com/user-attachments/assets/92a69aab-33ec-4892-8962-8daac3d1bc5c)
 
   </details>
 
