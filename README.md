@@ -5,7 +5,7 @@
 
 <img width="461" height="325" alt="mayor" src="https://github.com/user-attachments/assets/157ec207-b0e1-4018-bc24-7c18da24b61a" />
 
-  $\color{red}{\textbf{ art by @welcometoclowntowne on discord! }}$
+  $\color{pink}{\textbf{ art by @welcometoclowntowne on discord! }}$
  
   ## $\color{darkred}{\textbf{✦ Welcome!}}$    ![](https://komarev.com/ghpvc/?username=TheHuntersHusband&color=961818&label=Taxidermied+People)
 
@@ -46,7 +46,7 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
 
   <details>
 
-<summary>$${\color{#8F1717} BYI / INFO ▽   }$$</summary>
+<summary>$${\color{#EF6C00} BYI / INFO ▽   }$$</summary>
 
   $\color{darkgray}{\textbf{╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
 
@@ -70,7 +70,7 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
 
   <details>
 
-   <summary>$${\color{#6C1111} Fun stuff! ▽  }$$</summary>
+   <summary>$${\color{#FDD835} Fun stuff! ▽  }$$</summary>
 
  $\color{darkgray}{\textbf{ ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
  
@@ -98,7 +98,7 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
   
  <details>
 
-  <summary>$${\color{#490C0C}  My husband <3 ▽ }$$</summary>
+  <summary>$${\color{#7CB342}  My husband <3 ▽ }$$</summary>
 
  <img width="750" height="650" alt="hunter ref render" src="https://github.com/user-attachments/assets/4ccdee94-adeb-48d4-94ad-0c3e44be5dc1" />
 
@@ -110,7 +110,7 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
 
   <details>
 
-  <summary>$${\color{#7D1414}  Gifs! (vigilante) ▽ }$$</summary>
+  <summary>$${\color{#42A5F5}  Gifs! (vigilante) ▽ }$$</summary>
 
 ![peacemaker-peacemaker-tv-series](https://github.com/user-attachments/assets/81fdc1bf-c807-4988-8e7b-948540deb35b)
 
