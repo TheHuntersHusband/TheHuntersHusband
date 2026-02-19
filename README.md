@@ -130,5 +130,6 @@ $\color{grey}{\textbf{ ✦ Possible vigilante fictkin [peacemaker] ˊˎ}}$
 
 
 
-![slimecicle-ranboo](https://github.com/user-attachments/assets/79e75e24-6caa-4876-9659-158065ce43fb)
+
+![bro-hug-peacemaker](https://github.com/user-attachments/assets/1162b70a-daf5-46c7-b95e-e3b09e15cca9)
 
