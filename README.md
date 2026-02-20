@@ -84,7 +84,7 @@ $\color{grey}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
 <img width="99" height="56" alt="e77" src="https://github.com/user-attachments/assets/40cb7d70-be1e-4722-85ec-f7228b3e41c9" />![e80](https://github.com/user-attachments/assets/9e7a6dea-38cd-47da-9e35-d4c12ffda596)
 
 ![gaynerds](https://github.com/user-attachments/assets/03662005-bcc3-4c24-b35f-de296285213c)
-![e106](https://github.com/user-attachments/assets/8822933b-2b0c-409d-a5a9-ca337b2f4f35)
+![d16](https://github.com/user-attachments/assets/d31720e8-e1ac-4382-829c-82369d1e4524)
 
 
 
