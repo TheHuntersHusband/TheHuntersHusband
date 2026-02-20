@@ -31,11 +31,11 @@
  $\color{darkgray}{\textbf{ ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
  
 
- $\color{grey}{\textbf{ ✦ No.1 samuel kinnie [ttc/wolf  ˊˎ-}}$
+ $\color{white}{\textbf{ ✦ No.1 samuel kinnie [ttc/wolf  ˊˎ-}}$
 
 $\color{grey}{\textbf{ ✦ No.1 guppy kinnie!   ˊˎ-}}$
 
-$\color{grey}{\textbf{ ✦ The hunter kisser [ln2]  ˊˎ-  [nonsharing ] }}$
+$\color{white}{\textbf{ ✦ The hunter kisser [ln2]  ˊˎ-  [nonsharing ] }}$
 
 
 $\color{grey}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
@@ -57,19 +57,19 @@ $\color{grey}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
   $\color{darkgray}{\textbf{╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
 
 
-  $\color{darkgray}{\textbf{  About me!
+  $\color{white}{\textbf{  About me!
      main intrests: Taskmaster, little nightmares, ttc, tlt, ace attorney, dbh, Qbomb, Taxidermy <33,Bonus Disc, and more!}}$
  
 
   $\color{darkgray}{\textbf{i identify as transgender and gay! [mlm]}}$ 
 
-   $\color{darkgray}{\textbf{boundaries : you can, boop/kiss/cud/hide w/ me! [ask to c+h if im with somebody already!!]
+   $\color{white}{\textbf{boundaries : you can, boop/kiss/cud/hide w/ me! [ask to c+h if im with somebody already!!]
       you cannot: "eat" my skin, using the eat emote and going behind my skin, it makes me uncomofrtable 
       please dont beg in my whispers for t4 benifits!}}$ 
 
   $\color{darkgray}{\textbf{DNI: basic dni, proshippers, gen ai supporters, fat shamers, people who use c.ai, under 13`s, Moonflower/dandyxastro shippers. }}$ 
 
- $\color{darkgray}{\textbf{ ╰── ⋅ ⋅ ──  ✩  ── ⋅ ⋅ ──╯}}$
+ $\color{white}{\textbf{ ╰── ⋅ ⋅ ──  ✩  ── ⋅ ⋅ ──╯}}$
     
   </details>
   
