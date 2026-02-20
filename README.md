@@ -58,7 +58,7 @@ $\color{grey}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
 
 
   $\color{darkgray}{\textbf{  About me!
-     main intrests: little nightmares, ttc, tlt, ace attorney, dbh, Qbomb, Taxidermy <33,Bonus Disc, and more!}}$
+     main intrests: Taskmaster, little nightmares, ttc, tlt, ace attorney, dbh, Qbomb, Taxidermy <33,Bonus Disc, and more!}}$
  
 
   $\color{darkgray}{\textbf{i identify as transgender and gay! [mlm]}}$ 
