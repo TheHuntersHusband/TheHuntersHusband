@@ -5,7 +5,7 @@
 
 ![vigilante-peacemaker-dc-1634408442594 (1)](https://github.com/user-attachments/assets/098fd3fe-bb81-495a-bd43-6eb561bbf238)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wejn3fgxis6epwrm54o4hrjw5y&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=ebebeb)](https://spotify-github-profile.kittinanx.com/api/view?uid=31wejn3fgxis6epwrm54o4hrjw5y&redirect=true)
+
  
   ## $\color{darkred}{\textbf{✦ Welcome!}}$    ![](https://komarev.com/ghpvc/?username=TheHuntersHusband&color=961818&label=Taxidermied+People) 
 <img width="67" height="50" alt="86060593_QsM" src="https://github.com/user-attachments/assets/97259885-5175-4bc3-839a-e14c1ef6f807" />
@@ -142,7 +142,7 @@ $\color{grey}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
 ![divider-cute](https://github.com/user-attachments/assets/d83869af-5a5a-4543-8cf9-60d5b2a9821c)
 
 
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wejn3fgxis6epwrm54o4hrjw5y&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=ebebeb)](https://spotify-github-profile.kittinanx.com/api/view?uid=31wejn3fgxis6epwrm54o4hrjw5y&redirect=true)
 
 
 ![alex-horne-greg-davies](https://github.com/user-attachments/assets/001b2489-632a-4b0e-94d5-f9db29e03fe1)
