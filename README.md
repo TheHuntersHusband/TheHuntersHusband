@@ -61,7 +61,7 @@ $\color{grey}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
      main intrests: Taskmaster, little nightmares, ttc, tlt, ace attorney, dbh, Qbomb, Taxidermy <33,Bonus Disc, and more!}}$
  
 
-  $\color{darkgray}{\textbf{i identify as transgender and gay! [mlm]}}$ 
+  $\color{darkgray}{\textbf{i identify as transgender and gay! [mlm]  I ALSO BLOCK/HIDE FREELY!!! }}$ 
 
    $\color{white}{\textbf{boundaries : you can, boop/kiss/cud/hide w/ me! [ask to c+h if im with somebody already!!]
       you cannot: "eat" my skin, using the eat emote and going behind my skin, it makes me uncomofrtable 
