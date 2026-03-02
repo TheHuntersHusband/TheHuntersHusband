@@ -60,7 +60,7 @@ $\color{grey}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
 
 
   $\color{white}{\textbf{  About me!
-     main intrests: Taskmaster, little nightmares, ttc, tlt, jtmusic, ace attorney, dbh, Taxidermy <33,Bonus Disc, and more!}}$
+     main intrests: Suicide squad, pcmkr, little nightmares, tlt, ttc, dbh, Jtmusic, and more!}}$
  
 
   $\color{darkgray}{\textbf{i identify as transgender and gay! [mlm]  I ALSO BLOCK/HIDE FREELY!!! }}$ 
