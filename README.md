@@ -34,14 +34,14 @@
  $\color{darkgray}{\textbf{ ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
  
 
- $\color{white}{\textbf{ ✦ No.1 samuel kinnie [ttc/wolf  ˊˎ-}}$
+ $\color{darkred}{\textbf{ ✦ No.1 samuel kinnie [ttc/wolf  ˊˎ-}}$
 
-$\color{grey}{\textbf{ ✦ No.1 guppy kinnie!   ˊˎ-}}$
+$\color{red}{\textbf{ ✦ No.1 guppy kinnie!   ˊˎ-}}$
 
-$\color{white}{\textbf{ ✦ The hunter kisser [ln2]  ˊˎ-  [nonsharing ] }}$
+$\color{orange}{\textbf{ ✦ The hunter kisser [ln2]  ˊˎ-  [nonsharing ] }}$
 
 
-$\color{grey}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
+$\color{darkorange}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
 
 
 
@@ -60,17 +60,17 @@ $\color{grey}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
   $\color{darkgray}{\textbf{╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
 
 
-  $\color{white}{\textbf{  About me!
+  $\color{darkorange}{\textbf{  About me!
      main intrests: Suicide squad, pcmkr, little nightmares, taskmaster, tlt, ttc, dbh, Jtmusic, and more!}}$
  
 
-  $\color{darkgray}{\textbf{i identify as transgender and gay! [mlm]  I ALSO BLOCK/HIDE FREELY!!! }}$ 
+  $\color{orange}{\textbf{i identify as transgender and gay! [mlm]  I ALSO BLOCK/HIDE FREELY!!! }}$ 
 
-   $\color{white}{\textbf{boundaries : you can, boop/kiss/cud/hide w/ me! [ask to c+h if im with somebody already!!]
+   $\color{orange}{\textbf{boundaries : you can, boop/kiss/cud/hide w/ me! [ask to c+h if im with somebody already!!]
       you cannot: "eat" my skin, using the eat emote and going behind my skin, it makes me uncomofrtable 
       please dont beg in my whispers for t4 benifits!}}$ 
 
-  $\color{darkgray}{\textbf{DNI: basic dni, proshippers, gen ai supporters, fat shamers, people who use c.ai, under 13`s, Moonflower/dandyxastro shippers. }}$ 
+  $\color{yellow}{\textbf{DNI: basic dni, proshippers, gen ai supporters, fat shamers, people who use c.ai, under 13`s, Moonflower/dandyxastro shippers. }}$ 
 
  $\color{white}{\textbf{ ╰── ⋅ ⋅ ──  ✩  ── ⋅ ⋅ ──╯}}$
     
