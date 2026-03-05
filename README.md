@@ -95,7 +95,8 @@ $\color{darkorange}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
 
 
 
-<img width="99" height="56" alt="k20" src="https://github.com/user-attachments/assets/6c4f7691-aff9-47eb-a8ea-34dce31bda53" /> ![e31](https://github.com/user-attachments/assets/8fa6db0b-ea55-4a45-83fb-2a2ec483c7be)
+<img width="99" height="56" alt="k20" src="https://github.com/user-attachments/assets/6c4f7691-aff9-47eb-a8ea-34dce31bda53" /> <img width="100" height="59" alt="tumblr_38f1c6526d4c31fb287a114d3c22ed1c_1b801927_100" src="https://github.com/user-attachments/assets/85d8db5e-2eec-44af-95ba-7d0c95b54b1f" />
+
 
 
 
