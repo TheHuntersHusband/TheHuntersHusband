@@ -24,7 +24,11 @@
 
 
   $\color{darkred}{\textbf{-------------------------------------}}$
+
   
+  <img width="149" height="84" alt="tumblr_9fcdd49701e62924474146b9d7e2fb9b_a6dd40ec_250" src="https://github.com/user-attachments/assets/23cbf114-e5aa-4032-8462-7a1d42ab6b47" />
+<img width="149" height="84" alt="tumblr_8ac9009691e0ef2aa493362eadb4e487_7a45a16e_250" src="https://github.com/user-attachments/assets/62a66a10-f10f-4cc7-b49b-70b9c48f6e8e" />
+
 
 ![divider-cute](https://github.com/user-attachments/assets/d83869af-5a5a-4543-8cf9-60d5b2a9821c)
   <details>
@@ -143,6 +147,13 @@ $\color{darkorange}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
 
 
 ![divider-cute](https://github.com/user-attachments/assets/d83869af-5a5a-4543-8cf9-60d5b2a9821c)
+
+
+
+<img width="149" height="84" alt="tumblr_32e46cb4e3d8022a88966f4640b239cd_114e4280_250" src="https://github.com/user-attachments/assets/712225c3-63bc-4a57-b6d7-6f04b8a010fd" />
+<img width="149" height="84" alt="tumblr_d8d5d589a9572fb4893d4cd779d07cdd_862b223f_250" src="https://github.com/user-attachments/assets/753fabf0-bb7a-43d1-b405-87edbb4aec19" />
+
+
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wejn3fgxis6epwrm54o4hrjw5y&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
