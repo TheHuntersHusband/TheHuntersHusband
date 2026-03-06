@@ -90,7 +90,8 @@ $\color{darkorange}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
  $\color{darkgray}{\textbf{ ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
  
 
-<img width="99" height="56" alt="e77" src="https://github.com/user-attachments/assets/40cb7d70-be1e-4722-85ec-f7228b3e41c9" />![e80](https://github.com/user-attachments/assets/9e7a6dea-38cd-47da-9e35-d4c12ffda596)
+<img width="99" height="56" alt="e77" src="https://github.com/user-attachments/assets/40cb7d70-be1e-4722-85ec-f7228b3e41c9" /> ![tumblr_44884683b88a57a6c1f0eb424a6a471e_58650946_100](https://github.com/user-attachments/assets/260b4ceb-db14-4a1b-8d4a-eb173a2cfa04)
+
 
 ![gaynerds](https://github.com/user-attachments/assets/03662005-bcc3-4c24-b35f-de296285213c)
 ![d16](https://github.com/user-attachments/assets/d31720e8-e1ac-4382-829c-82369d1e4524)
