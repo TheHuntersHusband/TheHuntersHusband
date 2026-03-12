@@ -70,7 +70,7 @@ $\color{darkorange}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
      main intrests: Suicide squad, pcmkr, little nightmares, taskmaster, tlt, ttc, dbh, Jtmusic, and more!}}$
 
 
-  $\color{darkorange}{\textbf{ Things 2 knoe: i have memory problems! so im sorry if i forget stuff! & diagnosed autism }}$
+  $\color{darkorange}{\textbf{ Things 2 knoe: i have memory problems! so im sorry if i forget stuff! and diagnosed autism }}$
 
   $\color{orange}{\textbf{i identify as transgender and gay! [mlm]  I ALSO BLOCK/HIDE FREELY!!! }}$ 
 
