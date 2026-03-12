@@ -110,8 +110,11 @@ $\color{darkorange}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
 
 ![e115](https://github.com/user-attachments/assets/b09abdad-e804-46d0-93d8-e849ea47ddfc)![e51](https://github.com/user-attachments/assets/6b00fde2-14ef-43b6-91f7-753aaf316382)
 
+<img width="561" height="646" alt="Screenshot 2026-03-12 161159" src="https://github.com/user-attachments/assets/c6a4f4cd-4c7d-485c-ad05-121fc86917bf" />
 
- $\color{darkgray}{\textbf{ ╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯}}$
+
+ $\color{darkgray}{\
+textbf{ ╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯}}$
   
   </details>
 
