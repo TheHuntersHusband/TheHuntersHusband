@@ -67,7 +67,7 @@ $\color{darkorange}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
 
 
   $\color{darkorange}{\textbf{  About me!
-     main intrests: Suicide squad, pcmkr, little nightmares, taskmaster, tlt, ttc, dbh, Jtmusic, and more!}}$
+     main intrests: Suicide squad, pcmkr, Daredevil, little nightmares, taskmaster, tlt, ttc, dbh, Jtmusic, and more!}}$
 
 
   $\color{darkorange}{\textbf{ Things 2 knoe: i have memory problems! so im sorry if i forget stuff! and diagnosed autism }}$
