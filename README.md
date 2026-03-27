@@ -75,7 +75,7 @@ $\color{darkorange}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
   $\color{orange}{\textbf{i identify as transgender and gay! [mlm]  I ALSO BLOCK/HIDE FREELY!!! }}$ 
 
    $\color{orange}{\textbf{boundaries : you can, boop/kiss/cud/hide w/ me! [ask to c+h if im with somebody already!!]
-      you cannot: "eat" my skin, using the eat emote and going behind my skin, it makes me uncomofrtable 
+      you cannot: "eat" my skin !
       please dont beg in my whispers for t4 benifits!}}$ 
 
   $\color{yellow}{\textbf{DNI: basic dni, proshippers, gen ai supporters, fat shamers, people who use c.ai, under 13`s, Moonflower/dandyxastro shippers. }}$ 
