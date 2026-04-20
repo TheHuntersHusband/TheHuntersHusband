@@ -4,7 +4,8 @@
 
 
 
-<img width="1000" height="562" alt="Chase_targets_the_nurses" src="https://github.com/user-attachments/assets/e026b54e-1112-485d-ba1f-7b24e5809068" />
+<img width="1000" height="562" alt="Chase_asks_Murn_if_they_had_cable_to_watch_Fargo" src="https://github.com/user-attachments/assets/42418e6a-aae6-49ed-b997-55ec6cf41667" />
+
 
 
 
