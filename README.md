@@ -1,10 +1,11 @@
+
 <div align="center">
 
 
 
 
 
-<img width="1000" height="562" alt="Chase_asks_Murn_if_they_had_cable_to_watch_Fargo" src="https://github.com/user-attachments/assets/42418e6a-aae6-49ed-b997-55ec6cf41667" />
+<img width="4128" height="3096" alt="Samsung  thinman" src="https://github.com/user-attachments/assets/2a675779-6675-415c-9362-f1565c3a1d00" />
 
 
 
