@@ -4,8 +4,9 @@
 
 
 
+<img width="1000" height="562" alt="Smith_talks_to_Chase_about_the_chainsaw" src="https://github.com/user-attachments/assets/c2b21d3f-243f-4a2a-abf0-c55b9bc71a33" />
 
-<img width="4128" height="3096" alt="Samsung  thinman" src="https://github.com/user-attachments/assets/2a675779-6675-415c-9362-f1565c3a1d00" />
+
 
 
 
