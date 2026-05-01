@@ -44,14 +44,14 @@
  $\color{darkgray}{\textbf{ ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
  
 
- $\color{darkred}{\textbf{ ✦ No.1 samuel kinnie [ttc/wolf  ˊˎ-}}$
+ ✦ No.1 samuel kinnie [ttc/wolf  ˊˎ-
 
-$\color{red}{\textbf{ ✦ No.1 guppy kinnie!   ˊˎ-}}$
+ ✦ No.1 guppy kinnie!   ˊˎ-
 
-$\color{orange}{\textbf{ ✦ The hunter kisser [ln2]  ˊˎ-  [nonsharing ] }}$
+ ✦ The hunter kisser [ln2]  ˊˎ-  [nonsharing ] 
 
 
-$\color{darkorange}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
+ ✦ Vigilante fictkin [peacemaker] ˊˎ
 
 
 
@@ -70,18 +70,14 @@ $\color{darkorange}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
   $\color{darkgray}{\textbf{╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
 
 
-  $\color{darkorange}{\textbf{  About me!
-     main intrests: Outlast, WHF, HN , pcmkr, ln, tskmtr , aj, tlt, ttc, dbh, Jtmusic, and more!}}$
+About me! 
+    main intrests: Hello neighbour, baldi, We happy few, DC/MCU, more! 
+
+DNI: 
+   basic dni, fat shamers, c.ai users, moonflower shippers, pressure supporters, under 13`s, mean people!
+    
 
 
-  $\color{darkorange}{\textbf{ Things 2 knoe: i have memory problems! so im sorry if i forget stuff! and diagnosed autism }}$
-
-  $\color{orange}{\textbf{i identify as transgender and gay! [mlm]  I ALSO BLOCK/HIDE FREELY!!! }}$ 
-
-   $\color{orange}{\textbf{boundaries : you can, boop/kiss/cud/hide w/ me! [ask to c+h if im with somebody already!!]
-      you cannot: "eat" my skin ! }}$ 
-
-  $\color{yellow}{\textbf{DNI: basic dni, proshippers, gen ai supporters, fat shamers, people who use c.ai, under 13`s, Moonflower/dandyxastro shippers. }}$ 
 
  $\color{white}{\textbf{ ╰── ⋅ ⋅ ──  ✩  ── ⋅ ⋅ ──╯}}$
     
@@ -95,25 +91,9 @@ $\color{darkorange}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
  $\color{darkgray}{\textbf{ ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
  
 
-<img width="99" height="56" alt="e77" src="https://github.com/user-attachments/assets/40cb7d70-be1e-4722-85ec-f7228b3e41c9" /> ![tumblr_44884683b88a57a6c1f0eb424a6a471e_58650946_100](https://github.com/user-attachments/assets/260b4ceb-db14-4a1b-8d4a-eb173a2cfa04)
-
-
-![gaynerds](https://github.com/user-attachments/assets/03662005-bcc3-4c24-b35f-de296285213c)
-![d16](https://github.com/user-attachments/assets/d31720e8-e1ac-4382-829c-82369d1e4524)
 
 
 
-<img width="99" height="56" alt="k20" src="https://github.com/user-attachments/assets/6c4f7691-aff9-47eb-a8ea-34dce31bda53" /> <img width="100" height="59" alt="tumblr_38f1c6526d4c31fb287a114d3c22ed1c_1b801927_100" src="https://github.com/user-attachments/assets/85d8db5e-2eec-44af-95ba-7d0c95b54b1f" />
-
-
-
-
-
-![e22](https://github.com/user-attachments/assets/eeca2491-5df5-4b7e-a67b-d9afa9bbda93)
-![e5](https://github.com/user-attachments/assets/39f66ee5-2c55-4d0b-ba70-f244889f9717)
-
-
-![e115](https://github.com/user-attachments/assets/b09abdad-e804-46d0-93d8-e849ea47ddfc)![e51](https://github.com/user-attachments/assets/6b00fde2-14ef-43b6-91f7-753aaf316382)
 
 <img width="561" height="646" alt="Screenshot 2026-03-12 161159" src="https://github.com/user-attachments/assets/c6a4f4cd-4c7d-485c-ad05-121fc86917bf" />
 
@@ -128,7 +108,7 @@ $\color{darkorange}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
 
   <summary>$${\color{#BDBDBD}  My husband <3 ▽ }$$</summary>
 
- <img width="750" height="650" alt="hunter ref render" src="https://github.com/user-attachments/assets/4ccdee94-adeb-48d4-94ad-0c3e44be5dc1" />
+
 
   <img width="373" height="779" alt="image" src="https://github.com/user-attachments/assets/8e3686cd-235b-482f-b073-5c9c55ee1512" />
 
@@ -138,18 +118,25 @@ $\color{darkorange}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
 
   <details>
 
-  <summary>$${\color{#9E9E9E}  Gifs! (vigilante) ▽ }$$</summary>
+  <summary>$${\color{#9E9E9E}  Gifs!  ▽ }$$</summary>
 
-![peacemaker-peacemaker-tv-series](https://github.com/user-attachments/assets/81fdc1bf-c807-4988-8e7b-948540deb35b)
 
-![sparklepandalana-adrian-chase](https://github.com/user-attachments/assets/4461c7ae-5027-4a47-83c6-8c9da0da8947)
-![peacemaker-peacemaker-season-2](https://github.com/user-attachments/assets/bad46079-5812-4fdf-beee-ab5f83b92f84)
+<img width="300" height="169" alt="outlast-trials-mothergooseberry" src="https://github.com/user-attachments/assets/7dd19968-5393-4a25-8c92-39f28aad00fe" />
+<img width="374" height="374" alt="coyle-jolly" src="https://github.com/user-attachments/assets/40c597c9-559b-4793-920e-8e62c67a8b3a" />
+<img width="240" height="240" alt="outlast-trials-reagent" src="https://github.com/user-attachments/assets/9278c69a-f6cb-4c82-98f4-d0b5b561f625" />
 
-![vigilante-kissing-economos-adrian-kissing-john](https://github.com/user-attachments/assets/beb64436-a0a9-4625-813a-9e0cfc99e096)
+<img width="300" height="300" alt="judelow-strenghtsmp" src="https://github.com/user-attachments/assets/b5aa5513-4972-4cbd-b088-93a437732e25" />
+<img width="240" height="240" alt="sharpness-conexion" src="https://github.com/user-attachments/assets/125568a5-5b37-4ab7-aede-a7160f618fb1" />
+<img width="374" height="374" alt="outlast-trials-outlast (1)" src="https://github.com/user-attachments/assets/a6675b8f-b5f0-4390-b140-30619ced123d" />
 
-![adrian-chase-vigilante](https://github.com/user-attachments/assets/fc27d858-3a55-414d-ae53-0d8313072bce)![vigilante-peacemaker](https://github.com/user-attachments/assets/82b113ee-72a5-464b-a681-4eb2eb18c268)
+<img width="486" height="498" alt="baldi&#39;s-baldi" src="https://github.com/user-attachments/assets/918338e1-718b-4d24-9b4b-908711c5ac16" />
+<img width="220" height="422" alt="secret-neighbor-hello-neighbor" src="https://github.com/user-attachments/assets/ec4cecd5-5c90-4186-a054-c5e12379261b" />
+<img width="374" height="263" alt="hello-neighbor-like-subscribe-bell" src="https://github.com/user-attachments/assets/f42eda6c-74ff-4220-80ac-b7a750c1069b" />
 
-![peacemaker-vigilante (1)](https://github.com/user-attachments/assets/92a69aab-33ec-4892-8962-8daac3d1bc5c)
+
+
+
+
 
   </details>
 
