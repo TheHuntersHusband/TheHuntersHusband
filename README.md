@@ -44,14 +44,17 @@
  $\color{darkgray}{\textbf{ ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
  
 
- ✦ No.1 samuel kinnie [ttc/wolf  ˊˎ-
-
- ✦ No.1 guppy kinnie!   ˊˎ-
-
- ✦ The hunter kisser [ln2]  ˊˎ-  [nonsharing ] 
+ ✦Adrian chase Fictkin ˊˎ-
 
 
- ✦ Vigilante fictkin [peacemaker] ˊˎ
+ ✦Guppy Kinnie ˊˎ-
+
+
+ ✦Samuel Paytal lavi III Kinnie ˊˎ-
+
+
+ ✦The hunter kisser  ˊˎ-
+
 
 
 
@@ -93,6 +96,8 @@ DNI:
 
 
 
+<img width="658" height="836" alt="Screenshot 2026-04-26 143025" src="https://github.com/user-attachments/assets/55913225-7365-43d9-ac62-f9ec04425ae0" />
+<img width="1526" height="1009" alt="Screenshot 2026-04-29 184624" src="https://github.com/user-attachments/assets/caa886e8-ca40-48b1-b6d5-30961244158c" />
 
 
 <img width="561" height="646" alt="Screenshot 2026-03-12 161159" src="https://github.com/user-attachments/assets/c6a4f4cd-4c7d-485c-ad05-121fc86917bf" />
