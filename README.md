@@ -2,9 +2,8 @@
 <div align="center">
 
 
+<img width="1630" height="105" alt="typewriter (3)" src="https://github.com/user-attachments/assets/0f5efa72-300d-445d-be57-6c30dd85cab8" />
 
-
-<img width="1000" height="562" alt="Smith_talks_to_Chase_about_the_chainsaw" src="https://github.com/user-attachments/assets/c2b21d3f-243f-4a2a-abf0-c55b9bc71a33" />
 
 
 
@@ -15,9 +14,11 @@
 
 
  
-  ## $\color{darkred}{\textbf{✦ Welcome!}}$    ![](https://komarev.com/ghpvc/?username=TheHuntersHusband&color=961818&label=Taxidermied+People) 
-<img width="67" height="50" alt="86060593_QsM" src="https://github.com/user-attachments/assets/97259885-5175-4bc3-839a-e14c1ef6f807" />
-<img width="67" height="50" alt="86058719_Hnw" src="https://github.com/user-attachments/assets/70272391-2ba3-4f68-bc29-b72eae264f1c" /><img width="67" height="50" alt="86050949_7tT" src="https://github.com/user-attachments/assets/2575bbfa-9611-416c-8f69-4d312a9f226d" />
+  # $\color{gray}{\textbf{✦ hello!}}$    ![](https://komarev.com/ghpvc/?username=TheHuntersHusband&color=E2E1E1&label=Deer) 
+    
+
+
+<img width="400" height="14" alt="sparkles2" src="https://github.com/user-attachments/assets/04035b1e-32fa-42bd-b5a0-c36507afec6c" />
 
 
 
@@ -25,21 +26,20 @@
 [Straw](https://thehuntershusband.straw.page/)  /  [Ata](https://thehuntershusband.atabook.org/)   / [Prns](https://en.pronouns.page/@TheHuntersHusbnd)
  
 
-  $\color{red}{\textbf{On PT 24/7  }}$
+  $\color{gray}{\textbf{Frolicking in feilds 24/7!  }}$
 
 
 
-  $\color{darkred}{\textbf{-------------------------------------}}$
+  $\color{white}{\textbf{-------------------------------------}}$
 
   
-  <img width="149" height="84" alt="tumblr_9fcdd49701e62924474146b9d7e2fb9b_a6dd40ec_250" src="https://github.com/user-attachments/assets/23cbf114-e5aa-4032-8462-7a1d42ab6b47" />
-<img width="149" height="84" alt="tumblr_8ac9009691e0ef2aa493362eadb4e487_7a45a16e_250" src="https://github.com/user-attachments/assets/62a66a10-f10f-4cc7-b49b-70b9c48f6e8e" />
+
+<img width="400" height="80" alt="bluestarribbon2" src="https://github.com/user-attachments/assets/4cec7654-8752-4e58-a578-e8637ea8e0b4" />
 
 
-![divider-cute](https://github.com/user-attachments/assets/d83869af-5a5a-4543-8cf9-60d5b2a9821c)
   <details>
 
-   <summary>$${\color{#A41A1A} KINS / YUME ▽   }$$</summary>
+   <summary>$${\color{#F5F5F5} KINS / YUME ▽   }$$</summary>
 
  $\color{darkgray}{\textbf{ ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
  
@@ -65,7 +65,7 @@ $\color{darkorange}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
 
   <details>
 
-<summary>$${\color{#EF6C00} BYI / INFO ▽   }$$</summary>
+<summary>$${\color{#EEEEEE} BYI / INFO ▽   }$$</summary>
 
   $\color{darkgray}{\textbf{╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
 
@@ -90,7 +90,7 @@ $\color{darkorange}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
 
   <details>
 
-   <summary>$${\color{#FDD835} Fun stuff! ▽  }$$</summary>
+   <summary>$${\color{#E0E0E0} Fun stuff! ▽  }$$</summary>
 
  $\color{darkgray}{\textbf{ ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
  
@@ -126,7 +126,7 @@ $\color{darkorange}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
   
  <details>
 
-  <summary>$${\color{#7CB342}  My husband <3 ▽ }$$</summary>
+  <summary>$${\color{#BDBDBD}  My husband <3 ▽ }$$</summary>
 
  <img width="750" height="650" alt="hunter ref render" src="https://github.com/user-attachments/assets/4ccdee94-adeb-48d4-94ad-0c3e44be5dc1" />
 
@@ -138,7 +138,7 @@ $\color{darkorange}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
 
   <details>
 
-  <summary>$${\color{#42A5F5}  Gifs! (vigilante) ▽ }$$</summary>
+  <summary>$${\color{#9E9E9E}  Gifs! (vigilante) ▽ }$$</summary>
 
 ![peacemaker-peacemaker-tv-series](https://github.com/user-attachments/assets/81fdc1bf-c807-4988-8e7b-948540deb35b)
 
@@ -161,13 +161,14 @@ $\color{darkorange}{\textbf{ ✦ Vigilante fictkin [peacemaker] ˊˎ}}$
 
 
 
-<img width="149" height="84" alt="tumblr_32e46cb4e3d8022a88966f4640b239cd_114e4280_250" src="https://github.com/user-attachments/assets/712225c3-63bc-4a57-b6d7-6f04b8a010fd" />
-<img width="149" height="84" alt="tumblr_d8d5d589a9572fb4893d4cd779d07cdd_862b223f_250" src="https://github.com/user-attachments/assets/753fabf0-bb7a-43d1-b405-87edbb4aec19" />
+<img width="99" height="56" alt="tumblr_28ac4da403b95d712811bd1e04f25400_e2f1e5c3_100" src="https://github.com/user-attachments/assets/99e6eaeb-fc6e-4670-acb5-dbbeb12a3b96" />
+
 
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wejn3fgxis6epwrm54o4hrjw5y&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
-![peacemaker-peace-maker](https://github.com/user-attachments/assets/23f19f8f-0b84-4381-b944-7d6c51ce88f2)
+<img width="640" height="358" alt="antelope-reindeer" src="https://github.com/user-attachments/assets/454b6bbe-3718-44b4-9588-ff3c87ce3436" />
+
 
