@@ -34,7 +34,7 @@
 
   
 
-<img width="400" height="80" alt="bluestarribbon2" src="https://github.com/user-attachments/assets/4cec7654-8752-4e58-a578-e8637ea8e0b4" />
+<img width="400" alt="bluestarribbon2" src="https://github.com/user-attachments/assets/4cec7654-8752-4e58-a578-e8637ea8e0b4" style="background-color: transparent !important"/>
 
 
   <details>
