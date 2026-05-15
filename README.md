@@ -18,7 +18,7 @@
     
 
 
-<img width="400" height="14" alt="sparkles2" src="https://github.com/user-attachments/assets/04035b1e-32fa-42bd-b5a0-c36507afec6c" />
+<img width="400" alt="sparkles2" src="https://github.com/user-attachments/assets/04035b1e-32fa-42bd-b5a0-c36507afec6c" style="background-color: transparent !important" />
 
 
 
