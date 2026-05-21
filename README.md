@@ -74,7 +74,7 @@
 
 
  
-  main intrests: Hello neighbour, baldi, We happy few, DC/MCU, more! 
+  main intrests: Outlast trials, Hello neighbour, baldi, We happy few, DC/MCU, more! 
 
 DNI: 
    basic dni, fat shamers, c.ai users, moonflower shippers, pressure supporters, under 13`s, mean people!
