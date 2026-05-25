@@ -53,7 +53,7 @@
  ✦Guppy Kinnie ˊˎ-
 
 
- ✦Samuel Paytal lavi III Kinnie ˊˎ-
+ ✦Samuel / mr treat ur nose Kinnie ˊˎ-
 
 
  ✦The hunter kisser  ˊˎ-
