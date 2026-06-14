@@ -74,7 +74,7 @@
 
 
  
-  main intrests: Outlast trials, Hello neighbour, Morse code, We happy few, DC/MCU, Gotham,  more! 
+  main intrests: Outlast trials, Hello neighbour, Morse code, Doom patrol, We happy few, DC/MCU, Gotham,  more! 
 
 DNI: 
    basic dni, fat shamers, c.ai users, moonflower shippers, pressure supporters, under 13`s, mean people!
