@@ -23,7 +23,7 @@
 
 
 
-[Straw](https://thehuntershusband.straw.page/)  /  [Ata](https://thehuntershusband.atabook.org/)   / [Prns](https://en.pronouns.page/@TheHuntersHusbnd)
+[Straw](https://thehuntershusband.straw.page/)  /  [Ata](https://thehuntershusband.atabook.org/)   / [Prns](https://en.pronouns.page/@TheHuntersHusbnd) / [prns.cc](https://pronouns.cc/@Thehuntershusband)
  
 
   $\color{gray}{\textbf{Frolicking in feilds 24/7!  }}$
