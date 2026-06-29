@@ -71,14 +71,14 @@
 
   $\color{darkgray}{\textbf{╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
 
-
+  
  
   main intrests: Outlast trials, Hello neighbour, Morse code, Doom patrol, We happy few, DC/MCU, Gotham,  more! 
 
 DNI: 
    basic dni, fat shamers, c.ai users, moonflower shippers, pressure supporters, under 13`s, mean people!
     
-
+   ALSO i know im always afk lmfao, i do try to be active sometimes but my friends arent online </3
 
 
  $\color{white}{\textbf{ ╰── ⋅ ⋅ ──  ✩  ── ⋅ ⋅ ──╯}}$
