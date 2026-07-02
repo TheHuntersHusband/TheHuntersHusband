@@ -149,10 +149,14 @@ DNI:
   </details>
 
 
+<img width="500"  alt="cat2" src="https://github.com/user-attachments/assets/015a59a7-3f32-4b23-b3f6-5c89822bb586" style="backround-color: transparent !important"/>
 
 
 
-![divider-cute](https://github.com/user-attachments/assets/d83869af-5a5a-4543-8cf9-60d5b2a9821c)
+
+
+  $\color{white}{\textbf{-------------------------------------}}$
+
 
 
 
