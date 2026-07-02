@@ -43,8 +43,6 @@
  $\color{darkgray}{\textbf{ ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
  
 
- ✦Adrian chase Fictkin ˊˎ-
- 
 
  ✦Guppy Kinnie ˊˎ-
 
@@ -73,7 +71,7 @@
 
   
  
-  main intrests: Outlast trials, Hello neighbour, Morse code, Doom patrol, We happy few, DC/MCU, Gotham,  more! 
+  main intrests: Hello neighbour,  Doom patrol, We happy few, DC/MCU, Gotham (show),  more! 
 
 DNI: 
    basic dni, fat shamers, c.ai users, moonflower shippers, pressure supporters, under 13`s, mean people!
