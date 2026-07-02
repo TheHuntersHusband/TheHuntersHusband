@@ -96,7 +96,7 @@ DNI:
 
 <img width="658" height="836" alt="Screenshot 2026-04-26 143025" src="https://github.com/user-attachments/assets/55913225-7365-43d9-ac62-f9ec04425ae0" />
 <img width="658" height="659" alt="Screenshot 2026-05-10 162134" src="https://github.com/user-attachments/assets/fccdc79c-55d8-4d27-875e-4305ecb7b737" />
-<img width="2559" height="1439" alt="Screenshot 2026-05-10 213442" src="https://github.com/user-attachments/assets/c8201b8b-2d8a-4b32-a0d2-e70137f53278" />
+![Uploading Screenshot 2026-07-01 225731.png…]()
 
 
 
