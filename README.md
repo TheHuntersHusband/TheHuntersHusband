@@ -2,7 +2,8 @@
 <div align="center">
 
 
-<img width="1630" height="105" alt="typewriter (3)" src="https://github.com/user-attachments/assets/0f5efa72-300d-445d-be57-6c30dd85cab8" />
+<img width="640"  alt="tumblr_8a06f9547d9062353ba0e5efb8cf4e8f_d043f708_640" src="https://github.com/user-attachments/assets/830d9bfc-fb78-429e-b2d4-ba7b3c0b54d3" style="backround-color: transparent !important"  />
+
 
 
 
@@ -16,6 +17,7 @@
  
   # $\color{gray}{\textbf{✦ hello!}}$    ![](https://komarev.com/ghpvc/?username=TheHuntersHusband&color=E2E1E1&label=Deer) 
     
+<img width="640"  alt="tumblr_415cd8243ea60b09dbde84b53ecb2325_b3734f86_640" src="https://github.com/user-attachments/assets/1c9debba-149e-46ea-a631-5d18bb9695d3" style="backround-color: transparent !important" />
 
 
 <img width="400" alt="sparkles2" src="https://github.com/user-attachments/assets/04035b1e-32fa-42bd-b5a0-c36507afec6c" style="background-color: transparent !important" />
@@ -31,10 +33,10 @@
 
   $\color{white}{\textbf{-------------------------------------}}$
 
-  
+<img width="640"  alt="tumblr_522ef44182be2816c05271bcf1ca522b_64fd2bdd_640" src="https://github.com/user-attachments/assets/ffbfba00-6db1-41ff-873f-bc6aafc73d7a" style="backround-color: transparent !important" />
 
-<img width="400" alt="bluestarribbon2" src="https://github.com/user-attachments/assets/4cec7654-8752-4e58-a578-e8637ea8e0b4" style="background-color: transparent !important"/>
 
+  $\color{white}{\textbf{-------------------------------------}}$
 
   <details>
 
@@ -154,7 +156,7 @@ DNI:
 
 
 
-<img width="99" height="56" alt="tumblr_28ac4da403b95d712811bd1e04f25400_e2f1e5c3_100" src="https://github.com/user-attachments/assets/99e6eaeb-fc6e-4670-acb5-dbbeb12a3b96" />
+<img width="250"  alt="tumblr_62f3feebab52d696e032d9e31bd00bf0_8eaa0369_250" src="https://github.com/user-attachments/assets/8f522ef9-9755-4231-8993-16a83a1a8080" style="backround-color: transparent !important" />
 
 
 
