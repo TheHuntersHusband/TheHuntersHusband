@@ -15,7 +15,7 @@
 
 
  
-  # $\color{gray}{\textbf{✦ hello!}}$    ![](https://komarev.com/ghpvc/?username=TheHuntersHusband&color=E2E1E1&label=Deer) 
+  # $\color{brown}{\textbf{✦ hello!}}$    ![](https://komarev.com/ghpvc/?username=TheHuntersHusband&color=E2E1E1&label=Deer) 
     
 <img width="640"  alt="tumblr_415cd8243ea60b09dbde84b53ecb2325_b3734f86_640" src="https://github.com/user-attachments/assets/1c9debba-149e-46ea-a631-5d18bb9695d3" style="backround-color: transparent !important" />
 
@@ -27,7 +27,7 @@
 
 [Straw](https://thehuntershusband.straw.page/)  /  [Ata](https://thehuntershusband.atabook.org/)   / [Prns](https://en.pronouns.page/@TheHuntersHusbnd) 
 
-  $\color{gray}{\textbf{Frolicking in feilds 24/7!  }}$
+  $\color{Darkbrown}{\textbf{Frolicking in feilds 24/7!  }}$
 
 
 
@@ -167,7 +167,7 @@ DNI:
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wejn3fgxis6epwrm54o4hrjw5y&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
+<img width="400" height="304" alt="deer-crossing-road-غزال" src="https://github.com/user-attachments/assets/a06868fc-a18f-4b36-9e66-87ba70961dde" />
 
-<img width="640" height="358" alt="antelope-reindeer" src="https://github.com/user-attachments/assets/454b6bbe-3718-44b4-9588-ff3c87ce3436" />
 
 
