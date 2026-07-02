@@ -15,7 +15,7 @@
 
 
  
-  # $\color{brown}{\textbf{✦ hello!}}$    ![](https://komarev.com/ghpvc/?username=TheHuntersHusband&color=E2E1E1&label=Deer) 
+  # $\color{brown}{\textbf{✦ hello!}}$    ![](https://komarev.com/ghpvc/?username=TheHuntersHusband&color=55423C&label=Deer) 
     
 <img width="640"  alt="tumblr_415cd8243ea60b09dbde84b53ecb2325_b3734f86_640" src="https://github.com/user-attachments/assets/1c9debba-149e-46ea-a631-5d18bb9695d3" style="backround-color: transparent !important" />
 
