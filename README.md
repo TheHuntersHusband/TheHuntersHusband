@@ -76,7 +76,8 @@
 DNI: 
    basic dni, fat shamers, c.ai users, moonflower shippers, pressure supporters, under 13`s, mean people!
     
-   ALSO i know im always afk lmfao, i do try to be active sometimes but my friends arent online </3
+   ALSO i know im always afk lmfao, i do try to be active sometimes if my friends are online!
+   
 
 
  $\color{white}{\textbf{ ╰── ⋅ ⋅ ──  ✩  ── ⋅ ⋅ ──╯}}$
