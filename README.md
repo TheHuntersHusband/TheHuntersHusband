@@ -1,8 +1,8 @@
 
 <div align="center">
 
+<img width="459" height="25" alt="teal2" src="https://github.com/user-attachments/assets/212e5a44-30c5-4be8-a586-6ac90c9afb11" />
 
-<img width="640"  alt="tumblr_8a06f9547d9062353ba0e5efb8cf4e8f_d043f708_640" src="https://github.com/user-attachments/assets/830d9bfc-fb78-429e-b2d4-ba7b3c0b54d3" style="backround-color: transparent !important"  />
 
 
 
@@ -15,12 +15,10 @@
 
 
  
-  # $\color{blue}{\textbf{✦ hello!}}$    ![](https://komarev.com/ghpvc/?username=TheHuntersHusband&color=55423C&label=Deer) 
+  # $\color{blue}{\textbf{✦ hello!}}$    ![](https://komarev.com/ghpvc/?username=TheHuntersHusband&color1E88E5C&label=Ramune) 
     
-<img width="640"  alt="tumblr_415cd8243ea60b09dbde84b53ecb2325_b3734f86_640" src="https://github.com/user-attachments/assets/1c9debba-149e-46ea-a631-5d18bb9695d3" style="backround-color: transparent !important" />
+ <img width="200" height="30" alt="blueroseribbon" src="https://github.com/user-attachments/assets/a1272463-5c3a-4c87-9f33-c6ff25a3cfc0" />
 
-
-<img width="400" alt="sparkles2" src="https://github.com/user-attachments/assets/04035b1e-32fa-42bd-b5a0-c36507afec6c" style="background-color: transparent !important" />
 
 
 
@@ -32,8 +30,11 @@
 
 
   $\color{white}{\textbf{-------------------------------------}}$
+  
+  
+  <img width="300" height="20" alt="stripeywings" src="https://github.com/user-attachments/assets/d8af9445-e80a-44fd-80a6-71b70ab870eb" />
 
-<img width="640"  alt="tumblr_522ef44182be2816c05271bcf1ca522b_64fd2bdd_640" src="https://github.com/user-attachments/assets/ffbfba00-6db1-41ff-873f-bc6aafc73d7a" style="backround-color: transparent !important" />
+
 
 
   $\color{white}{\textbf{-------------------------------------}}$
@@ -160,14 +161,17 @@ DNI:
 
 
 
-<img width="250"  alt="tumblr_62f3feebab52d696e032d9e31bd00bf0_8eaa0369_250" src="https://github.com/user-attachments/assets/8f522ef9-9755-4231-8993-16a83a1a8080" style="backround-color: transparent !important" />
+
+
 
 
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wejn3fgxis6epwrm54o4hrjw5y&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<img width="400" height="304" alt="deer-crossing-road-غزال" src="https://github.com/user-attachments/assets/a06868fc-a18f-4b36-9e66-87ba70961dde" />
+
+<img width="498" height="231" alt="nox-james-lee" src="https://github.com/user-attachments/assets/27bf5eb0-f512-477c-ac23-a7ec629b960c" />
 
 
 
+<img width="868" height="50" alt="vine35" src="https://github.com/user-attachments/assets/0f68db8d-04c5-49e3-9a82-6a09745e1b21" />
