@@ -74,7 +74,7 @@
 
   
  
-  main intrests: Hello neighbour,  Doom patrol, We happy few, DC/MCU, Gotham (show),  more! 
+  main intrests: Hello neighbour, Madness Combat , DC/MCU, Gotham (show), Happy hardcore! & more! 
 
 DNI: 
    basic dni, fat shamers, c.ai users, moonflower shippers, pressure supporters, under 13`s, mean people!
