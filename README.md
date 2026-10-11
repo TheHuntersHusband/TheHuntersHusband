@@ -21,7 +21,7 @@
 
    Brothers from other mothers!!
 
-[Straw](https://trickysdisco.straw.page)  /  [Ata](https://thehuntershusband.atabook.org/)   / [Pluralkit!](https://pluralkit.xyz/s/xusbhs)
+[Straw](https://bluescreens.straw.page)  /  [Ata](https://thehuntershusband.atabook.org/)   / [Pluralkit!](https://pluralkit.xyz/s/xusbhs)
  
  
 <img width="500" alt="cat2" src="https://github.com/user-attachments/assets/0d96987b-a02c-45b7-b56a-ad09e11f50a7" style="backround-color: transparent !imortant"  /> 
